@@ -1,7 +1,7 @@
 ## Welcome to the Loli dungeon!
 
 
-## :peach: :tongue: :eggplant: Satanichia Kurumizawa McDowell 
+## :peach: :tongue: :eggplant: Satanichia Kurumizawa McDowell :heart_eyes: :kissing_heart: :ring:
 
 <img src="https://vignette.wikia.nocookie.net/gabdro/images/5/5e/Satania_visual.png/revision/latest?cb=20170212011105">
 
